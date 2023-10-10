@@ -18,6 +18,13 @@ Postest2_MuhammadNabilMaruf2309116035
 
 ![image](https://github.com/NabilMaruf/Postest2_MuhammadNabilMaruf/assets/144756444/037e8af1-207f-4765-92ba-a287a95c31ef)
 
+# output admin
+![image](https://github.com/NabilMaruf/Postest2_MuhammadNabilMaruf/assets/144756444/5eb98870-5fc3-4551-a05e-f855a6f980c6)
+# output pembeli
+![image](https://github.com/NabilMaruf/Postest2_MuhammadNabilMaruf/assets/144756444/a87f0cf6-9ddf-4186-86ef-dfcb90428585)
+
+
+
 
 
 
